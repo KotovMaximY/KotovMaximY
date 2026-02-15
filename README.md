@@ -65,7 +65,3 @@ I'm always interested in:
 
 Feel free to reach out via [Telegram](https://t.me/KotovMaximY), [LinkedIn](https://linkedin.com/in/KotovMaximY), or [Email](mailto:KotovMaximY@yandex.ru)!
 
----
-
-📍 **Location:** Moscow, Russia  
-💼 **Open to:** Freelance projects, Consulting, Full-time opportunities
